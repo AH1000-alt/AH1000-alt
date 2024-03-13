@@ -5,4 +5,3 @@
 - ✈️When I'm not immersed in the world of data, you can often find me embarking on virtual adventures in the realm of gaming or exploring new horizons through my travels. As a passionate gamer and avid traveler, I thrive on the excitement of virtual worlds and the diversity of real-world cultures, constantly seeking new experiences and challenges
 - 📫 How to reach me: www.linkedin.com/in/a-h-b404932ab
 - Languages & Tools: ![68747470733a2f2f696d672e69636f6e73382e636f6d2f636f6c6f722f34382f3030303030302f707974686f6e2e706e67](https://github.com/AH1000-alt/AH1000-alt/assets/157437799/7a8352b0-1d9f-4c58-acea-3c8942ba3433)
-https://camo.githubusercontent.com/8d51475a8894b2e46c50800ab6ae28349a128b4da099f74cae5bf7a64df41de4/68747470733a2f2f75706c6f61642e77696b696d656469612e6f72672f77696b6970656469612f636f6d6d6f6e732f332f33382f4a7570797465725f6c6f676f2e737667(https://github.com/AH1000-alt/AH1000-alt/assets/157437799/7a8352b0-1d9f-4c58-acea-3c8942ba3433)
